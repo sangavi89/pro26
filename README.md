@@ -1,0 +1,1 @@
+Take the bread slice and keep butter on it , then put sauce and then put tomato, cucumber,onion .Then sprinkle spices. Then you are ready to eat your sandwich.
